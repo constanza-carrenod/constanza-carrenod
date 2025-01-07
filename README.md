@@ -1,5 +1,5 @@
-# Hi there! I'm Coni ⚽📊  
-From Chile, I'm passionate about combining **data**, **strategy**, and **technology** to transform sports performance. My mission is to help organizations, teams, and athletes thrive through the power of **Sports Analytics** and innovative solutions.  
+# Hi there! I'm Constanza ⚽📊  
+I'm passionate about combining **data**, **strategy**, and **technology** to transform sports performance. My calling is to help organizations, teams, and athletes thrive through the power of **Sports Analytics** and innovative solutions.  
 
 ### About Me  
 - 🎓 **Education:**  
